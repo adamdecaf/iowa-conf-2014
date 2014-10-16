@@ -24,6 +24,11 @@
 - Savings
 - Banks
 
+## Legal
+
+- Try and find a law firm that can help to manage
+- Also help finding an anchor investor
+
 ## Summary
 
 - Was a pitch for his VC firm. (Which will go unnamed.)
